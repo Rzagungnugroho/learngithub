@@ -1,0 +1,1 @@
+Ayo di baca dahulu
